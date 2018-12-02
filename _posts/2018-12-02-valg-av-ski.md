@@ -8,13 +8,15 @@ permalink: http://www.turrennbloggen.no/?p=89
 published: true
 post_date: 2018-12-02 21:46:41
 ---
-Det viktigste utstyret når en skal gå skirenn er selvfølgelig skiene. Etter jeg startet å deltid jobbe i sportsbutikk har jeg fordypet meg grundig i langrennsski verden. Det er mange forskjellige merker å velge mellom, som har mange forskjellige fordeler og ulemper. Det vinnes skirenn på de fleste av de allmenn kjente merkene. Men det er ingen tvil om at Fischer dominerer i world-cupen. Forrige sesong tok Fischer over 71% av alle FIS poeng som ble utdelt. Og i forrige vinter-OL vant Fischer ski totalt 89 medaljer (35 gull, 33 sølv og 21 bronse). Bare i langrenn alene vant Fischer ski over 56% av alle medaljene. Det er nok nevneverdig å si at de også har det størst markedsføringsbudsjett, så det er kanskje ikke så rart at de dominerer "cash is king".
+Det viktigste utstyret når en skal gå skirenn er selvfølgelig skiene. Etter jeg startet å jobbe deltid i sportsbutikk har jeg fordypet meg grundig i langrennsski verden. Det er mange forskjellige merker å velge mellom, som har ulike fordeler og ulemper. Det vinnes skirenn på de fleste av de mest kjente merkene. Men det er ingen tvil om at Fischer dominerer i world-cupen. Forrige sesong tok Fischer over 71% av alle FIS poeng som ble utdelt. Og i forrige vinter-OL vant Fischer ski totalt 89 medaljer (35 gull, 33 sølv og 21 bronse). Bare i langrenn alene vant Fischer ski over 56% av alle medaljene. Therese Johaug har siden sesongstart vist at det er veldig mulig å gå fort på Fischer ski.   Det er nok nevneverdig å si at Fischer også har det størst markedsføringsbudsjett, så det er kanskje ikke så rart at de dominerer "cash is king".
 
-<img class="wp-image-93 alignright" src="http://www.turrennbloggen.no/wp-content/uploads/2018/12/Klæbo-300x169.jpg" alt="" width="450" height="253" />
+<img class="alignright wp-image-93" src="http://www.turrennbloggen.no/wp-content/uploads/2018/12/Klæbo-300x169.jpg" alt="" width="450" height="253" />
 
 &nbsp;
 
 Men Fischer er ikke den ski produsenten som deler ut de største sponsorsummene per utøver. Så det er mulig å anta at det er flere som velger å gå på Fischer ski av andre grunner enn sponsorinntekter. Ryktet i Oslomarka sier at Madshus har den raskeste kaldskien. Men de typene som sier dette går utelukkende på Madshus ski, velger utelukkende Alpina støvler og smører utelukkende med Swix. Det er et klart mønster og de er nok ikke helt objektive i argumentasjonen sin.  Nasjonalisten i meg vil så gjerne mene det samme, men resultatene til Fischer ski taler for seg selv.
+
+&nbsp;
 
 Når det er sagt er selve skiplukken mye viktigere en hvilket merke skien er. Det er veldig vanskelig å produsere to identiske ski, det er noe du lærer fort når du begynner å måle ski med eiker ski-test måler. Og det er stor forskjell fra par til par selv om de i utgangspunktet skulle hatt like verdier. I produksjon av ski er det utrolig mange faktorer som spiller inn på hvordan sluttspennet blir, hvis det er en liten endring i temperaturen i produksjonslokalet vil limet i skien herde på en annen måte og spennet i skien kan avvike fra det som var ønsket. Det kan bli et bedre par eller det kan bli et upar.
 
