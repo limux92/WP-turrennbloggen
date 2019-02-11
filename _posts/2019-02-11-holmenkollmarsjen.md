@@ -9,7 +9,7 @@ permalink: >
 published: true
 post_date: 2019-02-11 15:10:10
 ---
-Mitt første turrenn ble mildt sagt utfordrende. Yr meldte skikkelig drittvær +2 til 0 grader og regn. Det var vanskelig å bestemme seg for ski og smøring. Swix kom ikke med klar anbefaling angående smurning før dagen før rennet. På grunn av usikkerheten rundt smurning endte jeg opp med å gå på en Fischer Speedmax Zero+ ski, altså en rubb ski uten smøring. Det viste seg å være en skivebom, de som hadde smurt med klister sprang fra meg opp bakkene med spikerfeste. Den gode gliden ble bare en liten trøst i utforkjøringene. Tross mye regn var løypene veldig bra, kudos til skiforeningen og løypemannskapet for særdeles god gjennomføring av arrangementet tross forholdene.
+Mitt første turrenn ble mildt sagt utfordrende. Yr meldte skikkelig drittvær +2 til 0 grader og regn. Det var vanskelig å bestemme seg for ski og smøring. Swix kom ikke med klar anbefaling angående smurning til dagen rett før rennet. På grunn av usikkerheten rundt smurning endte jeg opp med å gå på en Fischer Speedmax Zero+ ski, altså en rubb ski uten smøring. Det viste seg å være en skivebom, de som hadde smurt med klister sprang fra meg opp bakkene med spikerfeste. Den gode gliden ble bare en liten trøst i utforkjøringene. Tross mye regn var løypene veldig bra, kudos til skiforeningen og løypemannskapet for særdeles god gjennomføring av arrangementet tross forholdene.
 
 <img class="size-medium wp-image-178 alignright" src="http://www.turrennbloggen.no/wp-content/uploads/2019/02/51528668_2433885993352737_6323278696891285504_n-300x211.jpg" alt="" width="300" height="211" />
 
