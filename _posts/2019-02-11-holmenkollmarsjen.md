@@ -19,7 +19,7 @@ Det var lang do kø før start så jeg fikk dårlig tid til oppvarming. Jeg star
 
 Utenom dårlig feste hadde jeg veldig gode ski. De satt godt i perioder og jeg hadde fantastisk glid. Jeg glidet skiene med en runde Swix lf6, to runder Swix hvit marathon og toppet det med Swix fc8x pulver. På t-banen på veg hjem pratet jeg med en kar som bare hadde lagt klister og brukt kuzmin sikling. Restene av andres og hans eget klister var å finne i hele glidsonen. Han hadde kjent at skiene gikk sakte allerede etter første utforkjøring.
 
-Resultatet ble noe værre en forventet men ikke så gale som jeg frykta når jeg ikke fikk feste med skiene. Jeg hadde håpet på rundt 4 timer blank og <span style="font-size: 1rem;">endte på 4:42. Neste år skal det bli pers og under 4 timer. Sannsynligvis er forholdene litt bedre også. Nå blir det rolig trening i dagene fremover. Lurer litt på å gå Mylla rundt som neste turrenn. </span>
+Resultatet ble noe værre en forventet men ikke så gale som jeg frykta når jeg ikke fikk feste med skiene. Jeg hadde håpet på rundt 4 timer blank og <span style="font-size: 1rem;">endte på 4:42. Neste år skal det bli pers og under 4 timer. Sannsynligvis er forholdene litt bedre også. Nå blir det rolig trening i dagene fremover. Lurer litt på å gå Mylla rundt som neste turrenn. Formen er uansett stigende og jeg er i rute til Sesilåmi.  </span>
 
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <ins class="adsbygoogle" style="display: block; text-align: center;" data-ad-layout="in-article" data-ad-format="fluid" data-ad-client="ca-pub-4239823402717670" data-ad-slot="4705258891"></ins>
